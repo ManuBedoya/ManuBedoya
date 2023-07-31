@@ -5,7 +5,7 @@
  - 👯 I’m looking to collaborate on any project that interests me to participate 👨🏼‍💻 or in which I am invited.🚀 
  - 💬 Ask me about any thing yo want !!
  - 📫 How to reach me: 
- -     📌Instagram: @manuelbedoya5600  
+ -     📌Instagram: @manuelbedoya85  
  -     📌Correo : manuelfernandobedoya@gmail.com
  -     📌Twitter: @BedoyaManu98
  - ⚡ Fun fact: I'm secret skater !!🤭❤️
