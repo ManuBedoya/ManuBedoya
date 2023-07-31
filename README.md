@@ -8,7 +8,7 @@
  -     📌Instagram: @manuelbedoya5600  
  -     📌Correo : manuelfernandobedoya@gmail.com
  -     📌Twitter: @BedoyaManu98
- - ⚡ Fun fact: I'm secret Twitcher !!🤭❤️
+ - ⚡ Fun fact: I'm secret skater !!🤭❤️
 
 <!--
 **ManuBedoya/ManuBedoya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
